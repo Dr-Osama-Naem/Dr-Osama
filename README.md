@@ -1,6 +1,5 @@
 # 💫 Doctor of Education 
-### An expert in the EFL education and research, and currently peer reviewing articles for Q1 journals, 
-### focusing on effective utilization of Edtech and AI tools in the classroom. 
+### An expert in the EFL education and research, and currently peer reviewing articles for Q1 journals, focusing on effective utilization of Edtech and AI tools in the classroom. 
 Contact me at aljamra1981@gmail.com or on [LinkedIn](https://www.linkedin.com/in/osama-alzoubi-533b5886/)      
 { [Google Scholar](https://scholar.google.com/citations?hl=en&user=Q4KK9ZcAAAAJ) - [Scopus Profile](https://www.scopus.com/authid/detail.uri?authorId=58838263100 ) - [ResearhGate](https://www.researchgate.net/profile/Osama-Alzoubi) }
 _____________________
